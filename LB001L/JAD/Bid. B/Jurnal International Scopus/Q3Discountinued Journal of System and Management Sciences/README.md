@@ -1,0 +1,1 @@
+# Q3Discountinued Journal of System and Management Sciences
